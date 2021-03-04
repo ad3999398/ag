@@ -70,11 +70,11 @@
 
 
 
-<p>注册：<a rel="noreferrer noopener" href="https://www.binance.com/cn/register?ref=51616146" target="_blank">币安（点击进入）</a>    </p>
+<p>注册：<a rel="noreferrer noopener" href="https://www.binance.com/" target="_blank">币安（点击进入）</a>    </p>
 
 
 
-<p>注册：<a rel="noreferrer noopener" href="https://www.huobi.com/topic/invited/?invite_code=k68k6" target="_blank">火币 点击进入</a>  二维码见下方</p>
+<p>注册：<a rel="noreferrer noopener" href="https://www.huobi.com/" target="_blank">火币 点击进入</a>  二维码见下方</p>
 
 
 
@@ -98,7 +98,7 @@
 
 
 
-<p><h2>第一个：AG集团:</h2><br>推荐：<a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">环亚改名九游会</a>: <a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">点击进入</a> （虚拟币充提）推荐</p>
+<p><h2>第一个：AG集团:</h2><br>推荐：<a rel="noreferrer noopener" href="https://www.jy8836.com/" target="_blank">环亚改名九游会</a>: <a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">点击进入</a> （虚拟币充提）推荐</p>
 
 
 
