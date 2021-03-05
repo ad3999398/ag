@@ -118,15 +118,14 @@
 
 
 
-<p><a rel="noreferrer noopener" href="http://www.bomao88.com/reg/632d2b4c" target="_blank">http://www.bomao88.com/reg/632d2b4c</a> 【除菜票以外】<br><a rel="noreferrer noopener" href="http://www.bomao66.com/reg/632d2b4c" target="_blank">http://www.bomao66.com/reg/632d2b4c </a>【除菜票以外】<br><a rel="noreferrer noopener" href="http://www.bomao66.com/reg/93da8fe6" target="_blank">http://www.bomao66.com/reg/93da8fe6 </a>【菜票玩家】<br><a rel="noreferrer noopener" href="http://www.bomao88.com/reg/93da8fe6" target="_blank">http://www.bomao88.com/reg/93da8fe6 </a>【菜票玩家】</p>
+<p><a rel="noreferrer noopener" href="http://www.ibomao888.com/reg/632d2b4c" target="_blank">http://www.ibomao888.com/reg/632d2b4c</a> 【除菜票以外】<br><a rel="noreferrer noopener" href="http://www.ibomao888.com/reg/632d2b4c" target="_blank">http://www.ibomao888.com/reg/632d2b4c </a>【除菜票以外】<br><a rel="noreferrer noopener" href="http://www.ibomao888.com/reg/93da8fe6" target="_blank">http://www.ibomao888.com/reg/93da8fe6 </a>【菜票玩家】<br><a rel="noreferrer noopener" href="http://www.ibomao888.com/reg/93da8fe6" target="_blank">http://www.ibomao888.com/reg/93da8fe6 </a>【菜票玩家】</p>
 
+博猫手机App:
+
+<img src="https://i.loli.net/2021/03/05/4GkvQqFDaUT6xH7.jpg" >
 
 
 <p>=======================</p>
-
-
-
-<p><h2>第三个：（支持人民币，USDT充提）需要复制到浏览器打开</h2><br>猎杰杏耀：<a rel="noreferrer noopener" href="https://www.gtomat.com/s1/gprgbr" target="_blank">https://www.gtomat.com/s1/gprgbr</a><br>登录: <a rel="noreferrer noopener" href="http://speed.xinyao888.net" target="_blank">http://speed.xinyao888.net</a><br><h2>先注册后登陆</h2></p>
 
 
 
