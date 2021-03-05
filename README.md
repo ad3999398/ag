@@ -57,15 +57,6 @@
 <p>包括：新老凤凰 凤凰体育、一号站、二号站、博猫、优盈等等</p>
 
 
-
-<p>3. <h2>猎杰集团：</h2></p>
-
-
-
-<p>包括： 杏彩、杏耀、杏鑫、齐天 等等</p>
-
-
-
 <p><h2>关于usdt注册充值（不需要的略过，继续往下看）：</h2></p>
 
 
@@ -114,11 +105,11 @@
 
 
 
-<p><h2>第二个：需要复制到浏览器打开</h2><br>凤凰博猫：（支持人民币、虚拟币USDT充提）</p>
+<p><h2>第一个：可能需要复制到浏览器打开</h2><br>凤凰博猫：（支持人民币、虚拟币USDT充提）</p>
 
 
 
-<p><a rel="noreferrer noopener" href="http://www.bomao88.com/reg/632d2b4c" target="_blank">http://www.bomao88.com/reg/632d2b4c</a> 【除菜票以外】<br><a rel="noreferrer noopener" href="http://www.bomao66.com/reg/632d2b4c" target="_blank">http://www.bomao66.com/reg/632d2b4c </a>【除菜票以外】<br><a rel="noreferrer noopener" href="http://www.bomao66.com/reg/93da8fe6" target="_blank">http://www.bomao66.com/reg/93da8fe6 </a>【菜票玩家】<br><a rel="noreferrer noopener" href="http://www.bomao88.com/reg/93da8fe6" target="_blank">http://www.bomao88.com/reg/93da8fe6 </a>【菜票玩家】</p>
+<p><a rel="noreferrer noopener" href="http://www.ibomao888.com/reg/93da8fe6" target="_blank">http://www.ibomao888.com/reg/93da8fe6 </a>【菜票、足球篮球、电子等等，种类很全，很安全】<br><a rel="noreferrer noopener" href="http://www.ibomao888.com/reg/93da8fe6" target="_blank">http://www.ibomao888.com/reg/93da8fe6 </a>【菜票、足球篮球、电子等等，种类很全，很安全】</p>
 
 
 
